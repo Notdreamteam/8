@@ -1,1 +1,5 @@
-# 8
+![изображение](https://github.com/user-attachments/assets/3acbb3dd-59b1-4119-ab7a-56c489d58621)
+![изображение](https://github.com/user-attachments/assets/5f9bf0f2-cd43-43b5-a46b-896cfed401d1)
+![изображение](https://github.com/user-attachments/assets/ee85ad2f-0c25-41e1-ad8d-ec865d24ab64)
+![изображение](https://github.com/user-attachments/assets/0795b2b0-c1d2-414f-9197-4b9dd0f7379b)
+![изображение](https://github.com/user-attachments/assets/b9cdb0ca-0d07-4095-a90e-56d9d1dcec90)
